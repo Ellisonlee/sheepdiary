@@ -17,7 +17,6 @@ https://weibo.com/5228056212/KpMO7kFYG?from=page_1005055236952807_profile&wvr=6&
 ### DreamHealer
 [上班](https://weibo.com/6375088879/KpKQLeYzf?from=page_1005056375088879_profile&wvr=6&mod=weibotime)<br>
 [外出](https://weibo.com/6375088879/KpN6Utdl2?from=page_1005056375088879_profile&wvr=6&mod=weibotime&type=comment#_rnd1626964095894)<br>
-[昨天没有吃到的烤肠](https://weibo.com/6375088879/KpG0aipJJ?from=page_1005056375088879_profile&wvr=6&mod=weibotime&type=comment)<br>
 
 ### Nebularoam·昕羊
 [上班](https://weibo.com/7584954147/KpTLFfPNw?type=comment#_rnd1626964200489)<br>

@@ -10,8 +10,6 @@
 [下班](https://weibo.com/7335378002/KpwvwnPgb?from=page_1005057335378002_profile&wvr=6&mod=weibotime&type=comment#_rnd1626971279224) 注意手里的烤肠，这是它在这个世界上最后一次出现
 
 ## 口袋
-### 直播
-https://www.bilibili.com/video/BV1aP4y147qj<br>
 
 ### 口袋发言
 ![口袋发言](./pocket48/imgs/messages)<br>
