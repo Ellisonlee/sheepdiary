@@ -28,5 +28,5 @@ https://weibo.com/5228056212/KpMO7kFYG?from=page_1005055236952807_profile&wvr=6&
 [写了一首unit和一首16人曲的词cut](http://t.cn/A6fnCxxY?m=4661881610703881&u=7302184557)<br><br>
 
 ### 口袋发言
-![口袋发言](./pocket48/imgs/messages.jpeg)<br>
-![口袋图片1](./pocket48/imgs/P1.jpeg)<br>
+![口袋发言1](./pocket48/imgs/messages.jpeg)<br>
+![口袋发言2](./pocket48/imgs/messages2.jpeg)<br>
