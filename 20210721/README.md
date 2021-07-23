@@ -24,7 +24,7 @@ https://weibo.com/5228056212/KpMO7kFYG?from=page_1005055236952807_profile&wvr=6&
 
 ## 口袋
 ### 直播
-[口袋直播]待补<br>
+[口袋直播](https://www.bilibili.com/video/BV1dP4y147Ny)<br>
 [写了一首unit和一首16人曲的词cut](http://t.cn/A6fnCxxY?m=4661881610703881&u=7302184557)<br><br>
 
 ### 口袋发言
