@@ -15,8 +15,13 @@ ID：勇敢羊羊怕难<br>
 ### DreamHealer
 [比赛现场](https://weibo.com/6375088879/KploRc3F1?from=page_1005056375088879_profile&wvr=6&mod=weibotime&type=comment#_rnd1626971977144)<br>
 [下班](https://weibo.com/6375088879/Kpm47guNb?from=page_1005056375088879_profile&wvr=6&mod=weibotime)
+
+### Nebularoam·昕羊
+[和平精英𝐏𝐒𝐈总决赛 下班](https://m.weibo.cn/status/4660437398064503?)
+
 ### 其他
-[表演赛退场可爱治愈瞬间](http://t.cn/A6fHY3x8?m=4660469404794942&u=1856999022)
+[表演赛退场可爱治愈瞬间](http://t.cn/A6fHY3x8?m=4660469404794942&u=1856999022)<br>
+[臭屁猪猪抓镜头](https://m.weibo.cn/status/4660397803835256?)
 
 ## 口袋
 ### 直播
