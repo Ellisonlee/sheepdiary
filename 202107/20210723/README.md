@@ -23,7 +23,7 @@
 
 ## 口袋
 ### 口袋直播
-[口袋直播]TODO(地址待补)
+[口袋直播](https://www.bilibili.com/video/BV1pb4y167kB)
 
 ### 口袋发言
 ![口袋发言1](./pocket48/imgs/messages.jpeg)<br>
