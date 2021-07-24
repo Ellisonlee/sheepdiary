@@ -2,7 +2,7 @@
 新公演总彩！<br>
 就是明天！<br>
 
-带的牙套公司倒闭了<br>
+[带的牙套公司倒闭了](https://www.bilibili.com/video/BV1W54y1E71Q)<br>
 
 ## 物料
 
