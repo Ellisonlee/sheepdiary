@@ -6,7 +6,7 @@ ID：勇敢羊羊怕难<br>
 最后被炸车，死在了大草原上<br>
 
 ## 物料
-[SNH48官方返图](https://weibo.com/2689280541/KplZ1pNbJ?type=comment#_rnd1626973433948)
+[SNH48官方返图](https://weibo.com/2689280541/KplZ1pNbJ?type=comment#_rnd1626973433948)<br>
 [和平精英游戏+表演Cut](https://www.bilibili.com/video/BV1tX4y1c7Sz)
 ### YumPlan
 [比赛现场](https://weibo.com/7335378002/Kplsp8nsJ?from=page_1005057335378002_profile&wvr=6&mod=weibotime&type=comment#_rnd1626972065205)<br>
