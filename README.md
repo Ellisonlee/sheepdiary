@@ -38,3 +38,10 @@
 [YP](https://weibo.com/u/7335378002?refer_flag=1008085010_&is_all=1)<br>
 
 [Nebularoam·昕羊](https://weibo.com/u/7584954147?refer_flag=1008085010_)<br>
+## 一些有用的工具
+[48tools](https://github.com/duan602728596/48tools/releases/tag/v3.6.2)<br>
+可以在电脑上看口袋直播，以及下载，或者复制录播m3u8地址<br>
+[m3u8播放器](http://www.m3u8player.top/)<br>
+等不及yyh可以等录播出来后用m3u8播放器观看，没有弹幕和UI遮挡画面。<br>
+
+
