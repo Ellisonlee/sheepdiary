@@ -6,10 +6,10 @@
 ## 物料
 [终极任务音源](https://music.163.com/#/album?id=130836953&userid=442424518&app_version=8.2.60)
 
-
 ## 口袋
 ### 直播
-https://www.bilibili.com/video/BV17Q4y1f7Ps
+https://www.bilibili.com/video/BV17Q4y1f7Ps<br>
+[新歌试听cut](http://t.cn/A6fr9erG?m=4663316691552170&u=1626138803)
 ### 口袋发言
 ![口袋发言](./pocket48/imgs/messages1.jpeg)<br>
 ![口袋发言](./pocket48/imgs/messages2.jpeg)<br>
