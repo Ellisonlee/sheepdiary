@@ -24,7 +24,7 @@ HII《终极任务》首演！！！<br>
 [下班视频——by 阿夜](https://weibo.com/7591734803/KqhnRbfQ6?type=comment)<br>
 [下班视频——by 蓝阿鱼](https://weibo.com/6445571054/KqhvfrnUI?type=comment)<br>
 [总彩花絮cut From 017](https://weibo.com/5891928373/KqhvQbvlJ?from=page_1005055891928373_profile&wvr=6&mod=weibotime&type=comment)
-
+[公演视频](https://weibo.com/1626138803/KqAgsbp9K?type=comment)
 ## 口袋
 ### 直播
 https://www.bilibili.com/video/BV11y4y1j7kp<br>
