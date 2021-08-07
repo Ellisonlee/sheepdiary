@@ -7,7 +7,8 @@
 [排练下班](https://weibo.com/6375088879/Ks6H012Yg)
 
 ### 其他
-[夜行的黑猫fo](https://weibo.com/2853350034/Ks7lV9YBc)
+[夜行的黑猫fo](https://weibo.com/2853350034/Ks7lV9YBc)<br>
+[林舒晴排练vlog出现 暂无cut](https://weibo.com/6371378471/Ks427qUlv?from=page_1005056371378471_profile&wvr=6&mod=weibotime&type=comment)
 ## 口袋
 ### 直播
 https://www.bilibili.com/video/BV1ro4y1m7o6
