@@ -32,12 +32,11 @@
 
 ## 资源博参考汇总
 [应援会](https://weibo.com/u/5236952807)<br>
-
 [DH](https://weibo.com/u/6375088879)<br>
-
 [YP](https://weibo.com/u/7335378002)<br>
-
 [Nebularoam·昕羊](https://weibo.com/u/7584954147)<br>
+
+[许杨玉琢Ins](https://www.instagram.com/eliwa925/)
 ## 一些有用的工具
 [48tools](https://github.com/duan602728596/48tools/releases/tag/v3.6.2)<br>
 可以在电脑上看口袋直播，以及下载，或者复制录播m3u8地址<br>
