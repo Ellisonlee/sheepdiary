@@ -15,7 +15,8 @@
 ### YumPlan
 [散场 fo](https://weibo.com/7335378002/KspbZsTUg?from=page_1005057335378002_profile&wvr=6&mod=weibotime&type=comment)<br>
 [「 𝐀𝐟𝐭𝐞𝐫 𝐏𝐚𝐫𝐭𝐲 」focus](https://weibo.com/7335378002/KsrY05ikb)<br>
-[「黑与白」focus](https://weibo.com/7335378002/KsrZEfczo)
+[「黑与白」focus](https://weibo.com/7335378002/KsrZEfczo)<br>
+[发言返图](https://weibo.com/7335378002/KsQYorLb6)
 ### DreamHealer
 [表演返图](https://weibo.com/6375088879/Ksn11qzr5)<br>
 [发言返图](https://weibo.com/6375088879/Ksphc9GPR?type=repost#_rnd1628353445959)<br>
