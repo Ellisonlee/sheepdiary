@@ -3,8 +3,7 @@
 跟大家一起开心的一天
 
 ## 物料
-暂无
-
+[绿洲](https://weibo.com/6182733870/KtahP8Bsu)
 ## 口袋
 ### 口袋发言
 ![口袋发言](./pocket48/imgs/messages1.jpeg)<br>
