@@ -1,5 +1,6 @@
 ## 行程
 总选后难得的休息日Day7<br>
+和大家一起看了话剧
 
 ## 物料
 ### Yum Plan
@@ -8,7 +9,7 @@
 [Shots Focus](https://weibo.com/6375088879/KtperfEM7)
 ## 口袋
 ### 直播
-待补充
+https://cychengyuan-vod.48.cn/5566/20210815/cy/633442344713916416-666czwdwfss2g4bgelkm.m3u8
 ### 口袋发言
 ![口袋发言](./pocket48/imgs/messages1.jpeg)<br>
 ![口袋发言](./pocket48/imgs/messages2.jpeg)<br>
