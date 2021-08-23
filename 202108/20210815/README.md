@@ -3,6 +3,7 @@ H队午场公演<br>
 超级超级滑的剧场地板
 
 ## 物料
+[公演全场](https://www.bilibili.com/video/BV1iP4y1W7h3)
 ### Yum Plan
 [上班](https://weibo.com/7335378002/KtyjXBKA0)<br>
 [外出](https://weibo.com/7335378002/Ktz7HkXIc)<br>
