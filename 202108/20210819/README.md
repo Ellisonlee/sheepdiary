@@ -16,6 +16,7 @@ H队公演<br>
 ### 其他
 [下班视频](https://weibo.com/7268228641/KueeieO3f)<br>
 [外出](https://weibo.com/7410340783/KukbUkgJk)
+[外出](https://m.weibo.cn/status/4672637982999378?)
 
 ## 口袋
 ### 直播
