@@ -5,8 +5,8 @@
 ## 物料
 [小红书1](https://weibo.com/6182733870/KvoVmhhHT)<br>
 [小红书2](https://weibo.com/6182733870/KvqRF3NMx)<br>
-[恋恋MV](https://weibo.com/1682194877/KvnfH0lTn)
-
+[恋恋MV](https://weibo.com/1682194877/KvnfH0lTn)<br>
+[7SENSES官微](https://weibo.com/5901077408/KvnowwUWw)
 ## 口袋
 ### 口袋发言
 ![口袋发言](./pocket48/imgs/messages1.jpeg)<br>
