@@ -6,7 +6,7 @@
 
 ## 口袋
 ### 口袋直播
-待补
+https://www.bilibili.com/video/BV15b4y1m7Rd
 ### 口袋发言
 ![口袋发言](./pocket48/imgs/messages1.jpeg)<br>
 ![口袋发言](./pocket48/imgs/messages2.jpeg)<br>
