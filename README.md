@@ -37,7 +37,8 @@
 [Nebularoam·昕羊](https://weibo.com/u/7584954147)<br>
 
 [许杨玉琢Ins](https://www.instagram.com/eliwa925/)<br>
-[许杨玉琢小红书](http://www.xiaohongshu.com/user/profile/5c1a30d90000000007000588)
+[许杨玉琢小红书](http://www.xiaohongshu.com/user/profile/5c1a30d90000000007000588)<br>
+[许杨玉琢抖音](https://www.douyin.com/user/MS4wLjABAAAAri8xH3Pya_zM3V_O21m0ubWjevZT6CYupz3ZauA083w)
 ## 一些有用的工具
 [48tools](https://github.com/duan602728596/48tools/releases/tag/v3.6.2)<br>
 可以在电脑上看口袋直播，以及下载，或者复制录播m3u8地址<br>
