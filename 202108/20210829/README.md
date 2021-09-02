@@ -2,7 +2,8 @@
 H队晚场公演<br>
 
 ## 物料
-[公演全场](https://www.bilibili.com/video/BV1KQ4y127cC)
+[公演全场](https://www.bilibili.com/video/BV1KQ4y127cC)<br>
+[SNH48官方抖音 手势舞](https://www.douyin.com/video/7000180807981681951)
 ### YumPlan
 [上班](https://weibo.com/7335378002/KvIq1zdRp)<br>
 [外出](https://weibo.com/7335378002/KvKJ84k1J)<br>
