@@ -4,16 +4,9 @@ H队公演<br>
 ## 物料
 [公演全场](https://www.bilibili.com/video/BV1eg411V7DD)<br>
 [抖音 手势舞](https://www.douyin.com/video/7003291973406690599?)
-### YumPlan
-[上班](https://weibo.com/7335378002/KvIq1zdRp)<br>
-[外出](https://weibo.com/7335378002/KvKJ84k1J)<br>
-[下班]()
 ### DreamHealer
-[上班](https://weibo.com/6375088879/Kwkul6F2l)<br>
-[下班](https://weibo.com/6375088879/KvKCTivLc)
-### Nebularoam·昕羊
-[上班](https://weibo.com/7584954147/KvIr5sWTW)<br>
-
+[上班](https://weibo.com/6375088879/Kwkul6F2l)
+[下班](https://weibo.com/6375088879/KwmHSsnS0)
 ### 其他
 [lookout 直拍](https://weibo.com/6864313428/KwmAgyi9f)<br>
 [MC 直拍](https://weibo.com/6864313428/Kwn7Z6r6O)<br>
