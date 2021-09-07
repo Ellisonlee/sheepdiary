@@ -20,6 +20,8 @@
 [转场](https://weibo.com/7646321708/KwDuupL7n)
 
 ## 口袋
+### 口袋直播
+https://www.bilibili.com/video/BV15q4y1S7rt
 ### 口袋发言
 ![口袋发言](./pocket48/imgs/messages1.jpeg)<br
 ![口袋发言](./pocket48/imgs/P1.jpeg)<br>
