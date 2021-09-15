@@ -21,8 +21,9 @@
 ### 其他
 [下班 最最最厉害的胖头鱼](https://weibo.com/2321954085/KxSXdyFOJ)<br>
 [上班视频 奶头山陈大马棒](https://weibo.com/5622214188/KxQpJmCM8)<br>
-[上班视频](https://m.weibo.cn/status/4680673895386070?)
+[上班视频](https://m.weibo.cn/status/4680673895386070?)<br>
 [公演 牙刷](https://weibo.com/1856999022/Ky0oDz7nu)<br>
+[支配者fo SNH48-昕羊的许愿灯](https://weibo.com/7151374466/KyaNJ6baD)<br>
 [支配者fo alex](https://weibo.com/2971625284/KxWxdzQC4)<br>
 [下班 alex](https://weibo.com/2971625284/KxWmg0qwT)<br>
 [下班 231](https://weibo.com/6067142592/KxTE3rFIO)<br>
