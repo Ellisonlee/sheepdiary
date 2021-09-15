@@ -33,6 +33,10 @@
 [下班视频 亦玺1003](https://m.weibo.cn/status/4680888460511444)<br>
 [下班+外出 琉璃海海](https://m.weibo.cn/status/4681036343280098)<br>
 
+### 团内羊推好玩视频
+
+[铁血羊推张琼予的追星历程](https://www.bilibili.com/video/BV11h411H7Rn?share_source=copy_web)
+
 ## 口袋
 ### 口袋直播
 https://www.bilibili.com/video/BV1p64y1h7MV
