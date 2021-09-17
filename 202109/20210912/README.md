@@ -13,7 +13,8 @@
 ### YumPlan
 [上班](https://weibo.com/7335378002/KxQpHhrLH)<br>
 [公演](https://weibo.com/7335378002/KxZdvCPpP)<br>
-[外出](https://weibo.com/7335378002/KxZNHwrsG)
+[外出](https://weibo.com/7335378002/KxZNHwrsG)<br>
+[Goodbye 直拍](https://m.weibo.cn/status/4682029260608868?)
 
 ### Nebularoam·昕羊
 [上班](https://weibo.com/7584954147/KxQITvRwq)
