@@ -7,8 +7,7 @@
 
 ## 口袋
 ### 口袋直播
-TODO
-
+https://cychengyuan-vod.48.cn/5566/20210921/cy/646866295901196288-norn5i86p6hsox6dnan4.m3u8
 ### 口袋发言
 ![口袋发言](./pocket48/imgs/messages1.jpeg)<br>
 ![口袋发言](./pocket48/imgs/messages2.jpeg)<br>
