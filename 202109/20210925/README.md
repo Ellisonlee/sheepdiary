@@ -6,7 +6,8 @@ Unit换成了渊<br>
 
 ## 物料
 [新歌 白色黄昏的洗礼](https://music.163.com/#/song?id=1881318348)<br>
-[ins](https://www.instagram.com/p/CUPrbmuF1C4/?utm_source=ig_web_copy_link)
+[ins](https://www.instagram.com/p/CUPrbmuF1C4/?utm_source=ig_web_copy_link)<br>
+[公演全场](https://www.bilibili.com/video/BV1oQ4y1r7z7)
 ### YumPlan
 [渊 focus](https://weibo.com/7335378002/KzR0KvLtz)<br>
 [上班](https://weibo.com/7335378002/KzPh1fWMD)<br>
