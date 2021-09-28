@@ -32,6 +32,7 @@
 
 ## 资源博参考汇总
 [应援会](https://weibo.com/u/5236952807)<br>
+[超管组](https://weibo.com/u/7549620903)<br>
 [DH](https://weibo.com/u/6375088879)<br>
 [YP](https://weibo.com/u/7335378002)<br>
 [Nebularoam·昕羊](https://weibo.com/u/7584954147)<br>
