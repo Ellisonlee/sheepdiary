@@ -16,6 +16,9 @@
 [巡演返图](https://weibo.com/2103306582/KBOE2kakU)<br>
 [巡演返图](https://weibo.com/7273379134/KBNPcxDT6)<br>
 [握手返图](https://weibo.com/5578001524/KBXcbkkvz?)<br>
+[巡演返图](https://m.weibo.cn/status/4690370463534201?)<br>
+[巡演返图 一杳清茶](https://weibo.com/2103306582/KC7PmixvB)<br>
+[巡演返图](https://weibo.com/5635893381/KC6GM4qau)
 ### 巡演直拍集中楼
 https://www.douban.com/group/topic/249051559/
 
