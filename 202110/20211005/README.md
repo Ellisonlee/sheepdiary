@@ -14,7 +14,8 @@
 [彩排下班](https://weibo.com/5635893381/KBjiF3cEO)<br>
 [舞台返图](https://weibo.com/5635893381/KBnompuSx)<br>
 [舞台返图](https://m.weibo.cn/status/4689440586334228?)<br>
-[舞台返图 平平无奇的西木野啊](https://weibo.com/6738785965/KBnyB4fRJ)
+[舞台返图 平平无奇的西木野啊](https://weibo.com/6738785965/KBnyB4fRJ)<br>
+[舞台返图 一杳清茶 ](https://weibo.com/2103306582/KDNWZzq29)
 ### 巡演直拍集中楼
 https://www.douban.com/group/topic/248957346/
 
