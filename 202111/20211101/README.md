@@ -2,7 +2,8 @@
 蜜食记官宣<br>
 练习超新星冰壶和射击的一天
 ## 物料
-[ins](https://www.instagram.com/p/CVuOLIJr4J8/?utm_source=ig_web_copy_link)
+[ins](https://www.instagram.com/p/CVuOLIJr4J8/?utm_source=ig_web_copy_link)<br>
+[小红书](http://www.xiaohongshu.com/discovery/item/617f827d00000000010278fb)
 ## 口袋
 ### 口袋语音
 [语音](./pocket48/audios/)
