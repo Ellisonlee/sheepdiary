@@ -6,6 +6,7 @@
 [公演全场](https://www.bilibili.com/video/BV1hQ4y1S7Lf)
 ### DreamHealer·许杨玉琢
 [上班](https://weibo.com/6375088879/KFfrR7VNO)<br>
+[下班](https://weibo.com/6375088879/KFkpXhiF5)
 ### YumPlan_许杨玉琢
 [上班](https://weibo.com/7335378002/KFfCU7b5W)<br>
 [握手会](https://weibo.com/7335378002/KFiNcbXyH)<br>
@@ -27,6 +28,8 @@
 [握手会 亦玺1003](http://t.cn/A6xPdeSe)<br>
 [下班 我是坏人Khadro](http://t.cn/A6xPdeSs)<br>
 [握手会 一只爱咩的小飞侠](http://t.cn/A6xPdeo0)<br>
+[下班 纯粹乐观的蓝阿鱼_](https://m.weibo.cn/status/4698712720804819?)<br>
+[下班 小昭日常自闭](https://weibo.com/5598044165/KFDE2AqP9)
 ## 口袋房间
 ### 口袋直播
 https://www.bilibili.com/video/BV1ZU4y1u7kR<br>
