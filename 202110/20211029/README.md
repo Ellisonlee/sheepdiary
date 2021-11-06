@@ -11,7 +11,8 @@
 [出发](https://weibo.com/7335378002/KEWmylPBC)<br>
 [上海出发](https://weibo.com/7335378002/KEWuGf9bc)<br>
 [芜湖到达](https://weibo.com/7335378002/KEXv9xBH4)<br>
-[]()<br>
+[钢琴录制排练](https://weibo.com/7335378002/KF94RlwoN)
+### 其他
 [排练花絮 牙刷](https://weibo.com/1856999022/KEZBSzzgJ)<br>
 [芜湖到达 林木Y-mo](https://weibo.com/5708923554/KEYguDNA5)<br>
 ## 口袋房间
