@@ -18,9 +18,12 @@
 [旅行日记返图 端水艺术家](https://weibo.com/6623133471/L0PQEmOWP)<br>
 [旅行日记返图 南南南野](https://weibo.com/3558326974/L0R42ggSH)<br>
 [旅行日记返图 防脱发研究主任](https://weibo.com/7702414407/L0TgCbfQk)<br>
+[旅行日记返图 我不是秃我是在长头发](https://weibo.com/6597796070/L0XY2hiCT)<br>
+[旅行日记返图 她的柏拉图_](https://weibo.com/7122992194/L0Yd1AvuP)<br>
+[旅行日记返图 阿仁还得努力](https://weibo.com/3984479942/L169dmbqb)
 ## 口袋
 ### 口袋直播
-ttps://www.bilibili.com/video/BV1334y1Z7hW
+https://www.bilibili.com/video/BV1334y1Z7hW
 ### 口袋发言
 ![口袋发言](./pocket48/imgs/messages1.jpeg)<br>
 ![口袋发言](./pocket48/imgs/P1.jpeg)<br>
