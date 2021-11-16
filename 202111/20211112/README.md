@@ -9,6 +9,7 @@
 [ins](https://www.instagram.com/p/CWLgwzLprhL/)<br>
 [抖音](https://www.douyin.com/video/7029510423527329060)<br>
 [安徽卫视蜜食记](https://m.weibo.cn/status/4702821209869458?)<br>
+[小红书](http://www.xiaohongshu.com/discovery/item/618e8b3a0000000001029a69)
 ### DreamHealer·许杨玉琢
 [花戎](https://weibo.com/6375088879/L16VmqTyr)<br>
 [厦门送机](https://weibo.com/6375088879/L18qKkkSW)<br>
@@ -32,6 +33,7 @@
 [厦门送机 DaisyStation 视频](https://m.weibo.cn/status/4702703328167975?)<br>
 [厦门送机 好想喝可乐·](https://m.weibo.cn/status/4702709300857232?)<br>
 [厦门送机 心系小許 视频](https://m.weibo.cn/status/4702754042546663?)<br>
+[厦门接送机 光雾山逢渝](https://weibo.com/7366195563/L1hFk7E2L)
 ## 口袋
 ### 口袋发言
 ![口袋发言](./pocket48/imgs/messages1.jpeg)<br>
