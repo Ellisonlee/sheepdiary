@@ -28,5 +28,6 @@ https://www.bilibili.com/video/BV1GQ4y1U7Bd
 ### 口袋发言
 ![口袋发言](./pocket48/imgs/messages1.jpeg)<br>
 ![口袋发言](./pocket48/imgs/P1.jpeg)<br>
-
+### 口袋语音
+[口袋语音](./pocket48/audios/)<br>
 
