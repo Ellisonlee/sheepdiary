@@ -6,6 +6,8 @@
 [抖音](https://www.douyin.com/video/7032276112365423886)<br>
 [TAO LIVE看戏剧大赛被大赛选手reaction](https://weibo.com/1779850265/L2eOcqJPe)<br>
 ## 口袋
+### 口袋语音
+[口袋语音](./pocket48/audios/)
 ### 口袋发言
 ![口袋发言](./pocket48/imgs/messages1.jpeg)<br>
 ![口袋发言](./pocket48/imgs/P1.jpeg)<br>
