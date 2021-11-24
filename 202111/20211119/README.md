@@ -2,6 +2,7 @@
 偷得浮生半日闲
 
 ## 物料
+[微博](https://weibo.com/5228056212/L2frVzysu?)<br>
 [小红书](http://www.xiaohongshu.com/discovery/item/6197afb20000000021034ff0)<br>
 [抖音](https://www.douyin.com/video/7032276112365423886)<br>
 [TAO LIVE看戏剧大赛被大赛选手reaction](https://weibo.com/1779850265/L2eOcqJPe)<br>

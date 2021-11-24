@@ -24,7 +24,8 @@ H队公演
 [Sweet Trap focus 空调艾瑞克_ACEric](https://weibo.com/6284574909/L1I2N4tEW)<br>
 [Look Out focus 空调艾瑞克_ACEric](https://weibo.com/6284574909/L1Bfgk1mc)<br>
 [𝐒𝐡𝐨𝐭𝐬 focus 空调艾瑞克_ACEric](https://weibo.com/6284574909/L1SIqfwJu)<br>
-[𝑬𝒔𝒄𝒂𝒑𝒆 focus 空调艾瑞克_ACEric](https://weibo.com/6284574909/L29RGE0yM)
+[𝑬𝒔𝒄𝒂𝒑𝒆 focus 空调艾瑞克_ACEric](https://weibo.com/6284574909/L29RGE0yM)<br>
+[Wind focus 空调艾瑞克_ACEric](https://weibo.com/6284574909/L2LtVqHzB)
 ## 口袋
 ### 口袋直播
 https://www.bilibili.com/video/BV1GQ4y1U7Bd

@@ -3,6 +3,7 @@
 去玩被🐷咬了
 
 ## 物料
+[weibo](https://weibo.com/5228056212/KFL3QeyG4)<br>
 [小红书](http://www.xiaohongshu.com/discovery/item/6182729f000000000102d2a1)<br>
 [抖音](https://www.douyin.com/video/7026298919659375886)<br>
 [绵羊TV 164](https://www.bilibili.com/video/BV1tf4y1u7Eo)
