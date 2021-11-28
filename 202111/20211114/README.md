@@ -25,7 +25,12 @@ H队公演
 [Look Out focus 空调艾瑞克_ACEric](https://weibo.com/6284574909/L1Bfgk1mc)<br>
 [𝐒𝐡𝐨𝐭𝐬 focus 空调艾瑞克_ACEric](https://weibo.com/6284574909/L1SIqfwJu)<br>
 [𝑬𝒔𝒄𝒂𝒑𝒆 focus 空调艾瑞克_ACEric](https://weibo.com/6284574909/L29RGE0yM)<br>
-[Wind focus 空调艾瑞克_ACEric](https://weibo.com/6284574909/L2LtVqHzB)
+[Wind focus 空调艾瑞克_ACEric](https://weibo.com/6284574909/L2LtVqHzB)<br>
+[盜亦有道 focus 空调艾瑞克_ACEric](https://weibo.com/6284574909/L2Uktq6BQ)<br>
+[紀念日 focus 空调艾瑞克_ACEric](https://weibo.com/6284574909/L33Llk1Zj)<br>
+[𝐔𝐩 𝐓𝐨 𝐘𝐨𝐮 focus 空调艾瑞克_ACEric](https://weibo.com/6284574909/L3doeEUzW)<br>
+[𝙳𝚘 𝚄 𝙻𝚘𝚟𝚎 𝙼𝚎 focus 空调艾瑞克_ACEric](https://weibo.com/6284574909/L3mLp1sLB)<br>
+[𝐆𝐨𝐨𝐝𝐛𝐲𝐞 focus 空调艾瑞克_ACEric ](https://weibo.com/6284574909/L3ro4w6nz)
 ## 口袋
 ### 口袋直播
 https://www.bilibili.com/video/BV1GQ4y1U7Bd
