@@ -4,7 +4,8 @@
 
 ## 物料
 [抖音](https://www.douyin.com/video/7037121924194962718)<br>
-[微博](https://weibo.com/5228056212/L4ohMB44j)
+[微博](https://weibo.com/5228056212/L4ohMB44j)<br>
+[公演cut](https://www.bilibili.com/video/BV16q4y1z7j8)
 ### DreamHealer
 [上班](https://weibo.com/6375088879/L4jMjeCoC)<br>
 ### YumPlan

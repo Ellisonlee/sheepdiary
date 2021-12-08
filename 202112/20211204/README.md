@@ -19,8 +19,11 @@
 [出街 0我是大姨夫诶_](http://t.cn/A6x0o8Mt)<br>
 [出街 小菲菲吖_0803](http://t.cn/A6x0o8Mw)<br>
 [出街 小张同学-是我](http://t.cn/A6x0o8M4)<br>
-[下班 -黎明前的企盼](http://t.cn/A6x0o8M5)
-
+[下班 -黎明前的企盼](http://t.cn/A6x0o8M5)<br>
+[公演 Goodbye 空调艾瑞克_ACEric](https://weibo.com/6284574909/L4HoI91xb)<br>
+[公演 𝐻𝑜𝑛𝑜𝑟+悬铃木 空调艾瑞克_ACEric](https://weibo.com/6284574909/L4HsDklb3)<br>
+[公演 花园舞曲 空调艾瑞克_ACEric](https://weibo.com/6284574909/L4HwSjCmp)<br>
+[公演 River](https://weibo.com/6284574909/L4OJqFwOr)
 ## 口袋
 ### 口袋直播
 https://www.bilibili.com/video/BV17P4y137wo
