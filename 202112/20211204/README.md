@@ -23,6 +23,8 @@
 [公演 Goodbye 空调艾瑞克_ACEric](https://weibo.com/6284574909/L4HoI91xb)<br>
 [公演 𝐻𝑜𝑛𝑜𝑟+悬铃木 空调艾瑞克_ACEric](https://weibo.com/6284574909/L4HsDklb3)<br>
 [公演 花园舞曲 空调艾瑞克_ACEric](https://weibo.com/6284574909/L4HwSjCmp)<br>
+[公演 光之轨迹 空调艾瑞克_ACEric](https://weibo.com/6284574909/L4XJ5jZ37)<br>
+[公演 返图 空调艾瑞克_ACEric](https://weibo.com/6284574909/L5fr30arV)
 [公演 River](https://weibo.com/6284574909/L4OJqFwOr)
 ## 口袋
 ### 口袋直播
