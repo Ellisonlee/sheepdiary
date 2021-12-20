@@ -5,6 +5,7 @@
 [超新星射击16强赛](https://weibo.com/5236952807/L6C6sguq3)<br> 
 [超新星街舞8强赛](https://weibo.com/5236952807/L6EquBZJL)<br> 
 [微博](https://weibo.com/5228056212/L6FmK585J)<br> 
+[抖音 擦玻璃](https://www.douyin.com/video/7043064924293090597)<br>
 [安徽卫视蜜食记](https://weibo.com/6179496757/L6DEalQtr)<br>
 [许杨玉琢作品 HATE 2 LOVE（曼陀罗）from SNH48 TeamSII 新公演 《幻境》歌词](https://weibo.com/2059853153/L6F8SgA8g)<br> 
 
@@ -20,9 +21,11 @@
 [闭幕式](https://weibo.com/7335378002/L6Fthxa19)<br>
 
 ### LumosMaxima
+[射击决赛](https://weibo.com/7726863056/L6M484YZS)<br>
 [街舞8强赛](https://weibo.com/7726863056/L6EILfoWr)<br> 
 [街舞8强赛竖fo](https://weibo.com/7726863056/L6FwzESnC)<br>
 [街舞8强赛横fo](https://weibo.com/7726863056/L6Gnjkp6z)<br> 
+[街舞8强赛](https://weibo.com/7726863056/L6LGF4O5n)<br>
 
 ### 其他
 [射击 热心市民alex-](https://weibo.com/2971625284/L6BZnoLRc)<br>
