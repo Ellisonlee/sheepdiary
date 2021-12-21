@@ -37,6 +37,7 @@
 [退场 几口橙2003](https://weibo.com/7549103594/L6wWiwkTI)<br> 
 [街舞 关灯失败-](https://weibo.com/6874698350/L6w1dcH6k)<br>
 [街舞fo 关灯失败-](https://weibo.com/6874698350/L6wcC1N1E)<br>
+[超新星运动会小杨街舞预赛 路人视角的分享 允词Winnie](https://weibo.com/5601706596/L6KdDmZce)<br>
 
 ## 口袋
 ### 口袋直播
