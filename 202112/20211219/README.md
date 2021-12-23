@@ -4,7 +4,6 @@
 ## 物料
 [蜜食记 腾讯视频](https://v.qq.com/x/cover/mzc00200hu3i7wm.html)<br>
 [微博](https://weibo.com/5228056212/L6P1KpISJ)<br>
-[小红书](http://www.xiaohongshu.com/discovery/item/61c05bb5000000000102bbc7)
 
 ### DreamHealer
 [送机](https://weibo.com/6375088879/L6KmOzukb)<br>
@@ -40,7 +39,7 @@
 [成都出发 aqaMiran](https://weibo.com/6967610269/L6Loe4Olb)<br>
 [成都出发 Seven不要走丢了](https://weibo.com/7215840576/L6MQIxVsP)<br>
 [成都出发 旺旺脆脆鯊](https://weibo.com/1064666785/L6Ux1cLx1)<br>
-
+[成都出发 姐姐研究专员丶](https://weibo.com/5216676025/L7hajveKl)<br>
 ## 口袋
 ### 口袋发言
 ![口袋发言](./pocket48/imgs/messages1.jpeg)<br>
