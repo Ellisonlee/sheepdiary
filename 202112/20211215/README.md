@@ -31,6 +31,9 @@
 [橄榄球](https://weibo.com/7726863056/L6cBX9TPx)<br>
 [橄榄球](https://weibo.com/7726863056/L6jBDtU9t)<br>
 [橄榄球](https://weibo.com/7726863056/L6jBDtU9t)
+### 其他
+[候场自拍 奥利奥奥妙全自动](https://weibo.com/6421281458/L7rOblnB8)<br>
+[橄榄球 奥利奥奥妙全自动](https://weibo.com/6421281458/L7zodkcWl)<br>
 ## 口袋
 ### 口袋直播
 https://www.bilibili.com/video/BV1zU4y1K7Tm
