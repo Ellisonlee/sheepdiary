@@ -20,9 +20,12 @@
 [上班 一杳清茶](https://weibo.com/2103306582/L7R3BrlqA)<br>
 [美美进行一个毛毯宣传 眨两下](https://weibo.com/6912562697/L7S7wEVef)<br>
 [握手 阿夜Sherlock](https://weibo.com/7591734803/L7SpBucbo)<br>
+[下班 牛肉干333333](https://weibo.com/2567211433/L7TbdpVDL)<br>
 ## 口袋
 ### 口袋直播
 https://www.bilibili.com/video/BV1r3411x7TT
+### 口袋视频
+[口袋视频](./pocket48/videos/)<br>
 ### 口袋发言
 ![口袋发言](./pocket48/imgs/messages1.jpeg)<br>
 ![口袋发言](./pocket48/imgs/P1.jpeg)<br>
