@@ -25,12 +25,15 @@
 [此刻你在想念谁.双机位 𝐅𝐨𝐜𝐮𝐬](https://weibo.com/7726863056/L7QW7b44V)<br>
 [此刻你在想念谁.右机位 𝐅𝐨𝐜𝐮𝐬](https://weibo.com/7726863056/L7NXFDpYB)<br>
 [此刻你在想念谁.左机位 𝐅𝐨𝐜𝐮𝐬](https://weibo.com/7726863056/L7OCt5vqR)<br>
+[许杨玉琢 𝟐𝟏.𝟏𝟐.𝟐𝟓.此刻你在想念谁.@SNH48-许杨玉琢  LumosMaxima·许杨玉琢](https://weibo.com/7726863056/L7Y1ndEHR)<br>
+[𝟖𝐊 𝐅𝐨𝐜𝐮𝐬.𝟐𝟏.𝟏𝟐.𝟐𝟓. 𝐂𝐨𝐧𝐭𝐫𝐨𝐥. LumosMaxima·许杨玉琢的 LumosMaxima·许杨玉琢](https://weibo.com/7726863056/L81MdxMcM)<br>[许杨玉琢 𝟐𝟏.𝟏𝟐.𝟐𝟓.𝐂𝐨𝐧𝐭𝐫𝐨𝐥. 竖版𝐅𝐨𝐜𝐮𝐬. LumosMaxima·许杨玉琢的 LumosMaxima·许杨玉琢](https://weibo.com/7726863056/L81UpplKg)<br>
 ### 其他
 [剧场路拍 阿夜Sherlock](https://weibo.com/7591734803/L7KNcCCj0)<br>
 [外出 我哭得好大声_lyq](https://weibo.com/5267042634/L7L1DmCKH)<br>
 [外出 牛肉干333333](https://weibo.com/2567211433/L7KVVAXeU)<br>
 [公演返图 奥利奥奥妙全自动](https://weibo.com/6421281458/L7T9aosJC)<br>
 [圣诞节公演结束外出 Sun珧_在宝塚坑内沉沦](https://weibo.com/1718044813/L7O2ovEbV)<br>
+[许杨玉琢2021.12.25外出&下班  一231](https://weibo.com/6067142592/L7ZMloIeL)<br>
 ## 口袋
 ### 口袋直播
 https://www.bilibili.com/video/BV1r3411x7TT
