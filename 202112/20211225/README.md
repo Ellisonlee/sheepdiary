@@ -28,6 +28,8 @@
 [此刻你在想念谁](https://weibo.com/7726863056/L7Y1ndEHR)<br>
 [𝟖𝐊 𝐅𝐨𝐜𝐮𝐬 𝐂𝐨𝐧𝐭𝐫𝐨𝐥](https://weibo.com/7726863056/L81MdxMcM)<br>
 [𝐂𝐨𝐧𝐭𝐫𝐨𝐥. 竖版𝐅𝐨𝐜𝐮𝐬](https://weibo.com/7726863056/L81UpplKg)<br>
+[𝟖𝐊 𝐅𝐨𝐜𝐮𝐬.爱情养成日记.](https://weibo.com/7726863056/L8kNVd1aw)<br>
+[爱情养成日记](https://weibo.com/7726863056/L8kDdczTk)<br>
 ### 其他
 [剧场路拍 阿夜Sherlock](https://weibo.com/7591734803/L7KNcCCj0)<br>
 [外出 我哭得好大声_lyq](https://weibo.com/5267042634/L7L1DmCKH)<br>

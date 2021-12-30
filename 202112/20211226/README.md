@@ -26,6 +26,7 @@
 [握手会@ 阿宇--LZY](https://weibo.com/5499807573/L7U2IBswz)<br>
 [上班 ForeverLove·琉璃海海](https://weibo.com/7610635463/L7VVy1wGV)<br>
 [握手会 奥利奥奥妙全自动](https://weibo.com/6421281458/L82Bhal8Z)<br>
+[上下班 一杳清茶](https://weibo.com/2103306582/L8aUp729k)<br>
 ## 口袋
 ### 口袋直播
 https://www.bilibili.com/video/BV1r3411x7TT
