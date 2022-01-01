@@ -37,6 +37,8 @@
 [公演返图 奥利奥奥妙全自动](https://weibo.com/6421281458/L7T9aosJC)<br>
 [圣诞节公演结束外出 Sun珧_在宝塚坑内沉沦](https://weibo.com/1718044813/L7O2ovEbV)<br>
 [外出&下班  一231](https://weibo.com/6067142592/L7ZMloIeL)<br>
+[粉狙 热心市民alex-](https://weibo.com/2971625284/L8z0JoV6f)<br>
+[控制 返图 关灯失败-](https://weibo.com/6874698350/L8zl4wghU)<br>
 ## 口袋
 ### 口袋直播
 https://www.bilibili.com/video/BV1r3411x7TT
