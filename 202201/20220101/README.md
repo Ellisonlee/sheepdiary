@@ -14,7 +14,6 @@ H队公演
 ### LumosMaxima
 [上班](https://weibo.com/7726863056/L8MVWfe59)<br>
 [上班](https://weibo.com/7726863056/L8Jq7mMeU)<br>
-### LumosMaxima
 [外出](https://weibo.com/7726863056/L8UuYwRa6)<br>
 ### 其他
 [上班 奥利奥奥妙全自动](https://weibo.com/6421281458/L8Fnx2gju)<br>
@@ -28,6 +27,7 @@ H队公演
 [外出 可乐也太好喝了吧哈哈](https://weibo.com/5415898244/L8WAgCcSV)<br>
 [外出 可乐也太好喝了吧哈哈](https://weibo.com/5415898244/L8WICkt59)<br>
 [外出 牛肉干333333](https://weibo.com/2567211433/L8NV6E9K4)<br>
+
 ## 口袋
 ### 口袋直播    
 [去剧场的路上](https://www.bilibili.com/video/BV1fb4y1Y7r5)<br>
