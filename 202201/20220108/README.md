@@ -26,6 +26,7 @@ B50
 [下班 ForeverLove·琉璃海海](https://weibo.com/7610635463/L9RmH3Nn1)<br>
 [下班 奥利奥奥妙全自动](https://weibo.com/6421281458/L9RhyctM9)<br>
 [B50 PV 返图 热心市民alex-](https://weibo.com/2971625284/L9QU5ev2a)<br>
+[下班 CELIBACY·禁欲系](https://weibo.com/5335333653/L9RWevxJR)<br>
 ## 口袋
 ### 口袋直播
 https://www.bilibili.com/video/BV1r44y1j7kA
