@@ -3,7 +3,7 @@
 
 ## 物料
 [抖音](https://www.douyin.com/video/7052657641461484830)<br>
-[快手](https://www.kuaishou.com/short-video/3x4qtqdvm5grane?authorId=3xhtrjypifamgpy&streamSource=profile&area=profilexxnull)<br>
+[快手](https://www.kuaishou.com/short-video/3x4qtqdvm5grane)<br>
 [微博](https://weibo.com/5228056212/LaCqyohLJ)<br>
 [公演全场Cut](https://www.bilibili.com/video/BV1n34y1i7nc)
 ### DreamHealer

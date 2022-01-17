@@ -3,7 +3,7 @@
 
 ## 物料
 [抖音](https://www.douyin.com/video/7053014094504381726)<br>
-[快手 沙漏直拍](hhttps://www.kuaishou.com/short-video/3xu6wpcsvqw8s99?authorId=3xhtrjypifamgpy&streamSource=profile&area=profilexxnull)<br>
+[快手 沙漏直拍](https://www.kuaishou.com/short-video/3xu6wpcsvqw8s99)<br>
 
 ## 口袋
 ### 口袋直播
