@@ -3,6 +3,7 @@
 
 ## 物料
 [快手](https://www.kuaishou.com/short-video/3x6d4asys3w49qg)<br>
+[ins](https://www.instagram.com/p/CY3-ijKPo4d/?utm_source=ig_web_button_share_sheet)<br>
 [小红书](http://www.xiaohongshu.com/discovery/item/61e6b189000000000102b9e5)
 
 ### DreamHealer
