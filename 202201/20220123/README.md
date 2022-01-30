@@ -11,6 +11,7 @@
 [外出](https://weibo.com/7335378002/Lc55CCJxL)<br>
 [公演返图](https://weibo.com/7335378002/Lc5Fe0MkC)<br>
 [下班给大家拜个早年](https://weibo.com/7335378002/Lc78QfhBQ)<br>
+[公演返图](https://weibo.com/7335378002/LcxoEjBoS)<br>
 ### LumosMaxima
 [上班](https://weibo.com/7726863056/Lc58udgm9)<br>
 [外出](https://weibo.com/7726863056/Lc7cM2fzV)<br>[许杨玉琢 𝟐𝟐𝟎𝟏𝟐𝟑年后见～@SNH48-许杨玉琢  LumosMaxima·许杨玉琢](https://weibo.com/7726863056/Lc87MC7dW)<br>
@@ -32,6 +33,7 @@
 [无声的探戈fo 阿仁还得努力](https://weibo.com/3984479942/Lc75XpxvY)<br>
 [无声的探戈fo 热心市民alex-](https://weibo.com/2971625284/Lc9mo9naC)<br>
 [无声的探戈fo 奥利奥奥妙全自动](https://weibo.com/6421281458/Lc7t1hDqn)<br>
+[公演返图 奥利奥奥妙全自动](https://weibo.com/6421281458/LcdX25cVM)<br>
 [外出 一231](https://weibo.com/6067142592/Lc7UpfURI)<br>
 [下班 阿宇--LZY](https://weibo.com/5499807573/Lc8b094oj)<br>
 [下班 是昂昂鸭啊](https://weibo.com/7008987143/Lc8hTFeYk)<br>
