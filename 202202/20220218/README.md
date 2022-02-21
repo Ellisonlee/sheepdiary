@@ -58,8 +58,6 @@ minilive + 公演
 [下班 0707Angel1222](https://weibo.com/5059181242/Lg5WpyvTa)<br>
 [下班 亦玺1003](https://weibo.com/7410340783/Lg5WhwvXg)<br>
 [MiniLive 一只牙刷](https://weibo.com/1856999022/Lg4FRgDWt)<br>
-
-[许杨玉琢🐏 #许杨玉琢 快乐能量月# 𝟮𝟮𝟬𝟮𝟭𝟴𝕄𝕀ℕ𝕀𝕃𝕀𝕍𝔼汇总 许杨玉琢超话管理组](https://weibo.com/7549620903/LgnE8s7D5)<br>
 ## 口袋
 ### 口袋直播
 https://www.bilibili.com/video/BV1QL411K7kR
